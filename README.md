@@ -8,3 +8,5 @@
 ![image](https://drive.google.com/uc?export=view&id=1zqQMXG98trtnKTOGxdIEg2UcyNeVvgHT)
 ![image](https://drive.google.com/uc?export=view&id=1uop6ZZmeStAribt3pudr05929vsdyzpt)
 ![image](https://drive.google.com/uc?export=view&id=1LZhfPcjPyWdZ5xp0mp0HI15RuQbly9H4)
+
+<img src="https://drive.google.com/uc?export=view&id=1LZhfPcjPyWdZ5xp0mp0HI15RuQbly9H4" alt="drawing" width="200"/>
